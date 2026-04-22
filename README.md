@@ -1,1 +1,1 @@
-The Hero Vida (often stylized as VIDA) is a range of electric scooters manufactured by Hero MotoCorp, designed to offer smart, sustainable, and accessible urban mobility. The brand focuses on swappable battery technology, allowing for convenient charging options.firePapayadrivephhet.icufirePapaya.
+The Hero Vida (often stylized as VIDA) is a range of electric scooters manufactured by Hero MotoCorp, designed to offer smart, sustainable, and accessible urban mobility.
